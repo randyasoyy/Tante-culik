@@ -1,2 +1,2 @@
-penggalan lirik lagu tante culik
+Lirik lagu tante culik
 
